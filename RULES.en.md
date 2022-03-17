@@ -7,4 +7,4 @@ You, as a member, Allowed to chat, or discussing almost any topic in this commun
 - Pirates
 - Spam
 
-Act as nice as possible. A childish behavior is unacceptable and will rejected from this community.
+Act as nice as possible. A childish behavior is unwelcome.
