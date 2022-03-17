@@ -7,4 +7,4 @@ You, as a member, Allowed to chat, or discussing almost any topic in this commun
 - Pirates
 - Spam
 
-Act as nice as possible. A childish behavior is unwelcome.
+Act as nice as possible. A childish behavior is unwelcome. While asking, Please do not do "i need help", simply ask your question immediately.
