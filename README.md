@@ -1,7 +1,7 @@
-# cules
+# Community Rules
 A short, and simple community rules for everyone. 
 
-Cules stands for **__C__**ommunity r**__ules__**. The only mission is to make a simple community rules. A short, but understandable rules.
+The only mission is to make a simple community rules. A short, but understandable rules.
 This rules is originally came from [YonleCoder](https://t.me/yonlecoder) community. Because it's too simple to understand, We make the rules is free to use for everyone.
 
 ## Using this rules. 
